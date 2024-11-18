@@ -23,5 +23,5 @@ This recipe is from my is from my dad and they are favorite among friends and fa
 4. Add flour mixture to butter mixture slowly.
 5. Stir in chocolate chips,oatmeal and coconut.
 6. Bake for **10 minutes** or until golden brown.
-7. 
+ 
     
